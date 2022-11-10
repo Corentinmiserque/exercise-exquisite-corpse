@@ -14,3 +14,5 @@ L'école était *belle*, les cours **motivants** mais les élèves étaient méc
 La nuit dernière j'ai fait une paralysie du sommeil, j'avais l'impression qu'une sorcière avec le visage tout tordu
 me regardait au pied de mon lit. J'ai vraiment cru que j'allais crever, c'était horrible, je me suis réveillé en mode
 grosse panique. Ducoup j'ai dormi avec la lumière allumée haha. 
+
+_perfect_
