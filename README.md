@@ -8,4 +8,5 @@ Il etait une fois, dans un royaume très très très lointain, un petit loup du 
 > Je viens d'un tout **petit village**... si pourri qu'il n'a *pas* de nom. J'ai échappé à un pillage, _caché_ au milieu des **cochons** - couvert de lisier, sentant la mort.
 > ***Dignement***, je me suis relevé... et je suis parti vers le Nord, bien décidé à oublier!
 > J'avais à peine marché deux heures ; j'entendis les tambours de guerre. Soudain, alarmé, je pris peur: j'étais vraiment dans la galère. 
+<>
 
